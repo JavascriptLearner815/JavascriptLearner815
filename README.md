@@ -16,3 +16,7 @@ Here are some ideas to get you started:
 -->
 
 I am great at math and play Minecraft as SpeedoThreeSixty. My Discord is SpeedoThreeSixty#3179 and my YouTube channel is https://www.youtube.com/channel/UC6spikDcAKWABZqw7nSLNKw.
+
+My name is SpeedoThreeSixty.
+
+My email is deanlovesmargie@gmail.com.

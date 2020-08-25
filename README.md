@@ -15,8 +15,19 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I am great at math and play Minecraft as SpeedoThreeSixty. My Discord is SpeedoThreeSixty#3179 and my YouTube channel is https://www.youtube.com/channel/UC6spikDcAKWABZqw7nSLNKw.
+I'm looking to collaborate on my organization's projects and grow my organization. I'm looking for help with making open source projects with these new members.
 
-My name is SpeedoThreeSixty.
-
-My email is deanlovesmargie@gmail.com.
+#### Social Media
+**Stack Overflow:** https://stackoverflow.com/users/13900902/speedothreesixty
+<br>
+**Discord:** https://discord.gg/vsh8Qet
+<br>
+**Reddit:** https://reddit.com/user/SpeedoThreeSixty
+<br>
+**Twitter:** https://twitter.com/DeanSummer3
+<br>
+**YouTube:** https://www.youtube.com/channel/UC6spikDcAKWABZqw7nSLNKw?view_as=subscriber
+<br>
+**Twitch:** https://www.twitch.tv/speedothreesixty
+<br>
+**Xbox (not really but Discord says):** MercifulBowl631

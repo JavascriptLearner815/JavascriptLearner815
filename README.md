@@ -17,6 +17,8 @@ Here are some ideas to get you started:
 
 I'm looking to collaborate on my organization's projects and grow my organization. I'm looking for help with making open source projects with these new members.
 
+Sorry, but I am not open to job opportunities at this moment. I will update this frequently.
+
 #### Social Media
 **Stack Overflow:** https://stackoverflow.com/users/13900902/speedothreesixty
 <br>

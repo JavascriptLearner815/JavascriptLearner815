@@ -22,7 +22,7 @@ Sorry, but I am not open to job opportunities at this moment. I will update this
 #### Social Media
 **Stack Overflow:** https://stackoverflow.com/users/13900902/speedothreesixty
 <br>
-**Discord:** https://discord.gg/vsh8Qet
+**Discord:** SpeedoThreeSixty#3179
 <br>
 **Reddit:** https://reddit.com/user/SpeedoThreeSixty
 <br>
